@@ -1,4 +1,8 @@
-Singles Dating World - Online Dating Without Credit Card Payments
+<h1>Singles Dating World</h1>
+
+<h2>Free Dating Site no Credit Card Payments</h2>
+
+<img src="https://singlesdatingworld.com/images/singles.jpg" alt="Free online dating site no credit card needed" title="Free online dating site no credit card needed"></img>
 
 With so many single men and women looking for love or friendship online, It's no accident that Singles Dating World is one of  the <a href="https://singlesdatingworld.com">Best free online dating site without credit card payments.</a> We are not limited to only one or two countries where you can find the special someone you seek. It's an awesome tool to link singles from all corners of the globe to find true love and happiness. If you are one of those Single Professional Men in the US currently dating online and don't mind relocating, You can use our search filter to find Single Women in New York or Single Hispanic Women in Dallas. Single women who don't mind relocating can also easily find Single Professional Men in New York City or California.
 
